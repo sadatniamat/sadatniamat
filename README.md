@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sadatniamat
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on coding
+- 📫 you can reach me via sayednematullah.sadat@yahoo.com
